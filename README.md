@@ -1,1 +1,0 @@
-# Zampya-The-buddy
